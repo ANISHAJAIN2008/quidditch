@@ -3,4 +3,4 @@
 https://anishajain2008.github.io/quidditch-2/
 ### You all will love it and will think that you all are playing quidditch with Harry and all!!
 #### So guys go fast and check this out..don't miss this rare chance!
-# potterheads!! # loveforHP!
+# Potterheads!! # loveforHP!
